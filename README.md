@@ -1,0 +1,3 @@
+- Hey hey, I'm Siv
+- I code for school and a bit for myself
+- I want to learn how to make games and stuff so here I am :D
